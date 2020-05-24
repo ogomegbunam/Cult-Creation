@@ -75,5 +75,8 @@ therefore often refer C-level people to join so that they end up looking good wh
 Therefore Super-Bs will invite 10 C-levels to join, which is a total disaster.
 C=0 In an effort to improve the gene pool, C-level people should simply be killed, (metaphorically speaking, of course) or at least kept
 as far away as possible from your company.
-CREATE A DOMINANT MARKET SHARE
+16)CREATE A DOMINANT MARKET SHARE
+17)TRY BEFORE YOU BUY-The best way, the fairest way, to interview anyone is to work with them.
+18)WAR CRY-I love to think of entrepreneurs as heroes of a sort. To imagine a single person that starts with a simple idea and then turns that idea into a permanent monument of human accomplishment
+
 
